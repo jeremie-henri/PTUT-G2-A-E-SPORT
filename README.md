@@ -1,6 +1,6 @@
 # PTUT-G2-A-E-SPORT
 
-Lien utile:
+Lien utiles:
 
   -Site Game'her:
     http://www.gameher.fr/
